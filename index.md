@@ -1,1 +1,1 @@
-[See Our Privacy Policy](https://www.freeprivacypolicy.com/privacy/view/dd351dc5db1e8cb290eec9b0dcc2d525) 
+[See Memory Matching VR Privacy Policy](https://termsfeed.com/privacy-policy/03bc5477f789cd47909373a2c4448066) 
