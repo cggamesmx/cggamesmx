@@ -1,1 +1,1 @@
-[See Memory Matching VR Privacy Policy](docs/privacy/memorymatchingvr.html) 
+[See Memory Matching VR Privacy Policy](docs/privacy/memorymatchingVR.html) 
